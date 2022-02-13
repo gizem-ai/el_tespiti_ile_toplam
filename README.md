@@ -1,0 +1,1 @@
+# el_tespiti_ile_toplam
